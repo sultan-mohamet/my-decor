@@ -15,7 +15,8 @@
 
 - 📫 How to reach me **mohameda.azizfarah@gmail.com**
 
-- ⚡ Fun fact **i think am funny**
+- ⚡ Fun fact **Build your mind with education and your body with exercise. 
+strengthen your soul with faith and your heart with love.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
